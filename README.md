@@ -1,2 +1,0 @@
-# anadejanovic.github.io
-website
